@@ -114,7 +114,7 @@ Distributed under the MIT License. See `LICENSE` for more information.
 
 ## Contact
 
-Deep Halder - [deephalder122002@gmail.com](mailto:deephalder122002@gmail.com)
+RISHI - [rishikanthrishi25@gmail.com](mailto:rishikanthrishi25@gmail.com)
 
 -----
 
